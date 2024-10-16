@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @lonelessdart
+- 👀 I’m interested in (e 7)
+- 🌱 I’m currently learning (e 7)
+- 💞️ I’m looking to collaborate on (e 7)
+- 📫 How to reach me (e 7)
+- 😄 Pronouns: (e 7)
+- ⚡ Fun fact: (e 7)
